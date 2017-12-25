@@ -1,1 +1,0 @@
-# biblepaywallet.github.io
